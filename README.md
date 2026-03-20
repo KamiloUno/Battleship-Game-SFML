@@ -1,0 +1,1 @@
+# Gra_w_statki — kopia
